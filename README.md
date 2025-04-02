@@ -1,0 +1,1 @@
+# uy-ishi-mana-qaley-chiqibti
